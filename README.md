@@ -1,5 +1,4 @@
-# Domains
-Shadowsky 网站地址
+# Shadowsky 网站地址
 
 更新日期： 2019-10-18
 

@@ -4,6 +4,4 @@
 
 https://www.shadowsky.xyz
 
-https://www.shadowsky.stream
-
 https://www.shadowsky.icu

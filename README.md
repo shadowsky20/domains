@@ -5,3 +5,5 @@
 https://www.shadowsky.xyz
 
 https://www.shadowsky.icu
+
+https://www.shadowsky.fun

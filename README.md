@@ -6,4 +6,4 @@ https://www.shadowsky.xyz (永久)
 
 https://www.shadowsky.fun
 
-https://www.shadowsky.gay
+https://www.shadowsky.live

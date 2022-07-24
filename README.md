@@ -7,5 +7,3 @@ https://www.shadowsky.xyz (永久)
 https://www.shadowsky.run
 
 https://www.shadowsky.fun
-
-https://www.shadowsky.live
